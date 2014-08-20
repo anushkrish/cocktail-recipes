@@ -10,8 +10,8 @@ Ingredients
 
 Preparation
 -----------
-In cocktail shaker filled with ice, combine egg white, Pisco, simple syrup, and 
-lemon juice. Cover, shake vigorously for 15 seconds, and strain into six-ounce 
+In cocktail shaker filled with ice, combine egg white, Pisco, sugar, and 
+lemon. Cover, shake vigorously for 15 seconds, and strain into six-ounce 
 cocktail glass.
 
 Source
