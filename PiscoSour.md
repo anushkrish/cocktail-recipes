@@ -4,7 +4,7 @@ Pisco Sour
 Ingredients
 -----------
 * 1 egg white
-* 2.5 oz Pisco
+* 3.0 oz Pisco Alto del Carmen
 * 0.5 oz simple syrup
 * 0.75 oz fresh lemon juice
 
