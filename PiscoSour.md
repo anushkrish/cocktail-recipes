@@ -4,9 +4,10 @@ Pisco Sour
 Ingredients
 -----------
 * 1 egg white
-* 2.5 oz Pisco
+* 3.0 oz Pisco Alto del Carmen
 * 1 tbsp sugar
 * 1/2 lemon
+
 Preparation
 -----------
 In cocktail shaker filled with ice, combine egg white, Pisco, simple syrup, and 
