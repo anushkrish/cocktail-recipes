@@ -5,9 +5,8 @@ Ingredients
 -----------
 * 1 egg white
 * 2.5 oz Pisco
-* 0.5 oz simple syrup
-* 0.75 oz fresh lemon juice
-
+* 1 tbsp sugar
+* 1/2 lemon
 Preparation
 -----------
 In cocktail shaker filled with ice, combine egg white, Pisco, simple syrup, and 
